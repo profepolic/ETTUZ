@@ -1,2 +1,0 @@
-# ETTUZ
-aa
